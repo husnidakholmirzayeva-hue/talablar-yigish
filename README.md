@@ -1,1 +1,1 @@
-
+elektron jurnal
