@@ -1,1 +1,1 @@
-# talablar-yigish
+
